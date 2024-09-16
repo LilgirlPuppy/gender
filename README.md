@@ -1,3 +1,3 @@
 # gender
 
-it/its kitten thing
+Pup/Pups It/Its Puppy ;3 
